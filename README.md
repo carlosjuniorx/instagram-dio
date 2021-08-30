@@ -1,2 +1,2 @@
-# Feito a minhas adaptações
+# Feito as minhas adaptações
 
